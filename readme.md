@@ -1,0 +1,2 @@
+# Wijaya Photocopy
+HIGH PRINTING QUALITY
